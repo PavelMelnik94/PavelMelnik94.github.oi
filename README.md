@@ -1,3 +1,3 @@
-# PavelMelnik94.github.oi
+# PavelMelnik94.github.io
 
 мой первый домен
